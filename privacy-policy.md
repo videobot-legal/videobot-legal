@@ -24,8 +24,7 @@ We use secure industry-standard practices to protect all data.
 
 
 ## Contact
-If you have questions, contact:  
-**your@email.com** (replace later if you want)
+If you have questions, contact: autoshorts.aiplus@gmail.com
 
 
 
