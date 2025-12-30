@@ -95,4 +95,4 @@ We may update these Terms periodically. Continued use of the Service after chang
 
 13. Contact Information
 For questions, concerns, or legal inquiries, contact:
-📧 support@yourdomain.com
+📧 autoshorts.aiplus@gmail.com
